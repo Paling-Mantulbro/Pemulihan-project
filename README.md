@@ -1,6 +1,3 @@
-Mantulbro Termasuk Ke Dalam Salah Satu Situs Slot Online Gacor Terbaik Anti Rungkad 2022
-========================================================================================
-
 [#>>>DAFTAR SLOT GACOR<<<#](https://bit.ly/gacor-gacor)
 =======================================================
 
